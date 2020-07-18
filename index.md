@@ -15,7 +15,7 @@ Desenvolvemos diversas iniciativas para levar a vivência em programação para 
 
 ## Acompanhe!
 
-Nós somos seres socias e por isso estamos em **várias redes**.
+Nós somos seres sociais e por isso estamos em **várias redes**.
 
 Siga nossos perfis para se manter sempre atualizada(o) sobre o que estamos fazendo.
 
